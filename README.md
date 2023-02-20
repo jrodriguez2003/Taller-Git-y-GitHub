@@ -1,1 +1,1 @@
-Integrantes Jhoan Sebastian Rodriguez Celis
+Integrantes: Jhoan Sebastian Rodriguez Celis
